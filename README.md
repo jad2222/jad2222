@@ -4,7 +4,7 @@
   
 - 🌱 I’m currently learning Blender, Unity and C#!
   
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anything! Everything is experience and I am ready to learn
   
 - 📫 How to reach me: JadeVare01@gmail.com
   
